@@ -1,0 +1,1 @@
+# regulamin-wysylania-wiadomosci
